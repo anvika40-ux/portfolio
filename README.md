@@ -66,7 +66,7 @@ If you need a modern website for your business or brand — I can help!
 
 ## 📬 Contact Me  
 📧 Email: **helloanvika7@gmail.com**  
-📱 WhatsApp: **+91 6386892158**  
+  
 🐙 GitHub: https://github.com/anvika40-ux  
 💼 LinkedIn: *(Add your link)*
 
